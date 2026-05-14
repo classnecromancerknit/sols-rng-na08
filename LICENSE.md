@@ -1,4 +1,4 @@
-#  
+#  sol's rng Scripts rare offers the most advanced sol's rng Script, with auto-collect and invisibility. Perfect for dominating any match.
 
 
 
